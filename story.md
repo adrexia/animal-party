@@ -15,3 +15,5 @@ At an animal party you need cake for the animals.  Here's a recipe, yum yum!
   Half cup grated Carrot<br/>
   For dog birthday cake 'icing' use a spread made from either yoghurt or cream cheese<br/>
   <img src='http://tepchef.com/wp-content/uploads/2013/12/Birthday-Cakes-For-Dogs-959.jpg'/>
+
+It's a good thing someone thought to invite the chicken to the party, though perhaps not so good for the chicken.
